@@ -1,0 +1,3 @@
+- 👋 Hi, I’m @dayaradc
+- 🌱 I’m currently learning ciências da computação 
+- 📫 How to reach me : dayaradias1374@gmail.com
